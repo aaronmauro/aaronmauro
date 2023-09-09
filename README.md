@@ -1,1 +1,1 @@
-Hi, I'm Assistant Professor of Digital Media at [Brock University](https://brocku.ca/) in the [Department of Digital Humanities](https://brocku.ca/humanities/digital-humanities/).
+Hi, I'm Associate Professor of Digital Media at [Brock University](https://brocku.ca/), where I also serve as the Chair of the [Department of Digital Humanities](https://brocku.ca/humanities/digital-humanities/).
